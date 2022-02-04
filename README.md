@@ -1,73 +1,29 @@
 # Blog
-## Health Care Sector and Social Media: Advantages and Disadvantages
+## **Nomophobia: Disease or Addiction?**
 
-## INTRODUCTION 
-
-
-Social media is an online tool that is becoming quite popular these days because of its user-friendly features. Social media platforms like Facebook, Instagram, Twitter and more are giving people a chance to connect with each other across distances. In other words, the whole world is at our fingertips all thanks to social media. In every area of sectors whether its private or public use it for their own purposes or interest.
-There are also social media platforms for the healthcare industry like social networking platforms, blogs, microblogs, wikis, media-sharing sites, and virtual reality and gaming environments. [1]
-All these lucrative things also come with some cons. It's so powerful and with such a massive reach cannot be all good. Like how there are always two sides to a coin, the same goes for social media.
-
-* PARTICIPATION IN SOCIAL MEDIA BY HEALTH CARE PROFESSIONALS
-
-Social media provides Health care professionals with tools to share information, to debate health care policy and practice issues, to promote health behaviors, to engage with the public, and to educate and interact with patients, caregivers, students, and colleagues.[2]
-HCPs can take advantage of social media to potentially improve health outcomes, develop a professional network, increase personal awareness of news and discoveries, motivate patients, and provide health information to the community.[3]
-Physicians most often join online communities where they can read news updates, listen to experts' opinions, research medical developments, consult colleagues regarding patient issues, and network.[4]
+![](https://www.iberdrola.com/documents/20125/1507777/Nomofobia_746x419.jpg/593a02db-be64-f747-2702-8fa683fab827?t=1641285963834)
 
 
 
+Did you know what nomophobia is, probably not but at the same time, maybe you are infected with this. Let me explain, nomophobia is a term used to denote fear of being without a smartphone. As we all know and see we are surrounded by electronic media all over. And everyone has at least one or more than one cell phone in their pocket all the time. Somehow our day-to-day and face-to-face interactions with other people have been taken care of by digital devices. The fear of being away from the phone or the anxiety that an individual feels is also the synonym of Nomophobia. An analysis conducted among undergraduate students in Health Services resulted in that out of 547 males, 23% of the students were labeled as nomophobia, while 64% of students were at risk of developing nomophobia. Almost 77% of students checked their cell phones more than 35 times per day.[1]
 
 
-In a survey it was found that more than 90% of physicians use some form of social media for personal activities, whereas only 65% use these sites for professional reasons conducted by the social media site QuantiaMD on 4,000 physicians.[5,6]
-
-* USES OF SOCIAL MEDIA IN HEALTH CARE
-
-
-The most visited sites for social media are those where physicians can participate in online communities, listen to experts, and network and communicate with colleagues regarding patient issues.[7]The use of social media sites by pharmacists also frequently focuses on communication or discussion with colleagues.[8]
-
-Social media can also be utilized to connect HCPs with countries specialists in more medically advanced locations.[9] For example, surgical procedures can be streamed live via the Internet and questions can be asked via video call in real time.[10] Thus, social media provides a new communication channel for Health care providers to share and exchange medical information in ways and at a pace that was never before possible because of technological advancement.[11]
-Although there is unfavorable support among health care professionals to use social media for direct contact with patient care, this practice is slowly being accepted by clinicians and health care facilities.[12,13] For example, Georgia Health Sciences University has provided patients with access to a platform called WebView, which allows the patients to contact their doctors to ask questions or to request prescription refills.[14] Doctors can nowadays easily give consultations through social media and they are increasing their reach with the patient all over the globe.
-
-* Disadvantages of Social media
-
-The major drawback of health information found on social media and other online sources is a lack of quality and authenticity.[15]The content writers on these sites sometimes do not have knowledge or education on that field, but for the sake of money they write on the hot current topics to gain an audience to their pages. The risk associated with the use of social media is the posting of unprofessional content that can reflect unfavorably on HCPs, students, and affiliated institutions.
-Concerns regarding the use of social media by HCPs also result in breaching of patient confidentiality. Social media is a huge distraction for students or Doctors who manage time poorly and leads to low concentration during work also. It also encourages amateur advice and self-diagnosis of health problems, which sometimes leads to sometimes major repercussions for the individual.This is no different in the social media realm, as social media platforms are getting attacked every single day. Whether or not each attack is successful is one thing, but users run the risk of potentially having their private information stolen from an unwanted source.
-
-
-* Advantages of Social media
-
-With social media, more users can become more informed about topics they are interested in, and find ways to participate in those activities they are passionate about.The main advantages of using social media in healthcare, such as increasing interactions among patients and doctors are the key in today's digital era to keep updated with the false information. As the medical sciences is expanding day by day through the collaborations of different expert working from across the globe on same projects is the key outcome of social media.
-Due to social platforms or the ease of the Internet, sharing and tailoring information becomes too smooth for an HCP.These Platforms are increasing accessibility to health information and providing emotional and social support among the patient as well. The professionals enhance themselves with the new research that is carried out and published on the Internet. 
-It also helps in regulating the government policies on larger level and contributing to public health studies.
+Especially nowadays youth are addicted to smartphones so much that they are unable to concentrate on their life, future goals, and the most important “Relationships". It could be easily seen from the surveys that young adults are more likely to be addicted to nomophobia. The survey revealed that most of the teens (77%) reported anxiety when they were without their mobile phones. Scientists suggest certain psychological predictors for suspecting nomophobia in a person which is - “self-negative thoughts, younger age, low esteem, self-efficacy, high extroversion/introversion, impulsiveness and sense of urgency and seeking”.[2] Phones addiction leads to various health problems also like depression, anxiety, anger, sleep problems, etc. Think If Issac Newton was also indulging in smartphones at that time, then maybe he was unable to think about gravity and so on.  We’ve all seen the couples sitting together in a restaurant ignoring each other and engaging with their smartphones instead. In fact, most of us are rarely ever more than five feet from our smartphones. Like the use of drugs and alcohol, they can trigger the release of the brain chemical dopamine and alter your mood. You can also rapidly build up tolerance so that it takes more and more time in front of these screens to derive the same pleasurable reward. Staring at your phone will deny you the face-to-face interactions that can help to meaningfully connect you to others, alleviate anxiety, and boost your mood. In other words, the remedy you’re choosing for your anxiety (engaging with your smartphone), is actually making your anxiety worse.
+The persistent buzz, ping or beep of your smartphone can distract you from important tasks, slow your work, and interrupt those quiet moments that are so crucial to creativity and problem solving. Instead of ever being alone with our thoughts, we’re now always online and connected. And this lowers one's creativity in every field. Its symptoms are so normal that it's sometimes hard to identify the pattern. So if you are continuously looking on phones or checking notifications without any ping then you are also a patient of it. The fear of missing out something that even does not exist is such a scary thing to happen for an individual and many peoples living their life with it in this digital era. They feel disconnected in between the group of large gathering. Nomophobia not only affects the mental level but also affects the individual physically by reducing the eye power or the adverse effect of using mobile phones in bad posture leads to very adverse and irreversible health conditions. As the radiation emitting from mobiles phone also responsible for some health problems, that's why it is advice to keep your phone switch off or in airplane mode at night while sleeping and also advice to not use phones 1 hour before going to bed because it emits blue light rays which causes insomnia in some cases. According to Shambare et al. (2012), cell phones are “possibly the biggest non-drug addiction of the 21st century”. Nowadays college students are spending more than 9 hours per day on their mobile phones, which leads to addiction. It's like a drug addiction, which others consume externally in the form of biological substances and form a habit of regular consumption. It is an example of “a paradox of technology” having both the property of freeing and enslaving. Freeing from the real world and enslaving to the virtual world.[3]
 
 
 
+The early age diagnosis plays a major role in this problem. Counseling with specialists and their practices helps to control nomophobia. There are medications also like anti-anxiety medications or antidepressants to address some of your symptoms but they are not a permanent solution to it. There are therapies also like exposure therapy in which you gradually make distance with your smart devices instead of sudden boycott like leaving your phone in another room for some time and trying to focus on some other stuff. Meditation also plays an important practice in slowly breaking down Nomophobia.
 
 
+So my idea is to make people unaddicted to this syndrome and come up with an idea resembling the old quote like iron cut iron. The most addictive things on smartphones are apps, so I have an idea of an app that cuts down the addiction part and only people use the smartphone efficiently and constructively. 
+So basically an app that would monitor the toggling duration of the user and they will get points if they don't use their smartphone for a specific number of hours. And the reward increases exponentially with the duration of toggling of Smartphones and from these Rewards they can buy their daily needs items. The less they use their smartphones, the bigger rewards they get. This practice will for sure help in reducing the unnecessary use of smartphones.
+And this app offers other features also, which help users to use their smartphones in a much more efficient and needful way. The app offers limited-time usage of a Particular app, set by the user itself.
+If with that we are able to divert today's youth mind from constantly focusing on smartphones, then we surely see some best minds changing the world with their ideas.
 
 
-## CONCLUSION
-
-Everything has its Pros and cons, so as with Social Media. It's a Powerful tool if used wisely, otherwise it's also become a danger for us. We can take advantage of sharing information instantly and this information could be false also. So the guidelines should be followed and good practices should be involved. Individuals elucidate themselves before accepting any information provided on the Internet.Social media’s involvement in society has made its use in health care very common. It is important for us to find the best uses for these platforms in their future care delivery strategies. 
-
-^ REFERENCES
-1.  Grindrod K, Forgione A, Tsuyui RT, et al. Pharmacy 2.0: a scoping review of social media use in pharmacy. Res Social Adm Pharm. 2014;10(1):256–270. [PubMed] [Google Scholar]
-2.    ASHP statement on use of social media by pharmacy professionals. Available at: www.ashp.org/DocLibrary/BestPractices/AutoITStSocialMedia.aspx. Accessed March 30, 2014. [PubMed]
-3.      George DR, Rovniak LS, Kraschnewski JL. Dangers and opportunities for social media in medicine. Clin Obstet Gynecol. 2013;56(3):453–462. [PMC free article] [PubMed] [Google Scholar]
-4.       Househ M. The use of social media in healthcare: organizational, clinical, and patient perspectives. Stud Health Technol Inform. 2013;183:244–248. [PubMed] [Google Scholar]
-5.        Househ M. The use of social media in healthcare: organizational, clinical, and patient perspectives. Stud Health Technol Inform. 2013;183:244–248. [PubMed] [Google Scholar]
-6.         Fogelson NS, Rubin ZA, Ault KA. Beyond likes and tweets: an in-depth look at the physician social media landscape. Clin Obstet Gynecol. 2013;56(3):495–508. [PubMed] [Google Scholar]
-7.          Househ M. The use of social media in healthcare: organizational, clinical, and patient perspectives. Stud Health Technol Inform. 2013;183:244–248
-8.           Grindrod K, Forgione A, Tsuyui RT, et al. Pharmacy 2.0: a scoping review of social media use in pharmacy. Res Social Adm Pharm. 2014;10(1):256–270. [PubMed] [Google Scholar]
-9.            MacMillan C. Social media revolution and blurring of professional boundaries. Imprint. 2013;60(3):44–46. [PubMed] [Google Scholar]
-10.             MacMillan C. Social media revolution and blurring of professional boundaries. Imprint. 2013;60(3):44–46. [PubMed] [Google Scholar]
-11.              Dizon DS, Graham D, Thompson MA, et al. Practical guidance: The use of social media in oncology practice. J Oncol Pract. 2012;8(5):114–124. [PMC free article] [PubMed] [Google Scholar]
-12.               Chauhan B, George R, Coffin J. Social media and you: what every physician needs to know. J Med Pract Manage. 2012;28(3):206–209. [PubMed] [Google Scholar]
-13.                Dizon DS, Graham D, Thompson MA, et al. Practical guidance: The use of social media in oncology practice. J Oncol Pract. 2012;8(5):114–124. [PMC free article] [PubMed] [Google Scholar]
-14.                 Chauhan B, George R, Coffin J. Social media and you: what every physician needs to know. J Med Pract Manage. 2012;28(3):206–209. [PubMed] [Google Scholar]
-15.                  Moorhead SA, Hazlet DE, Harrison L, et al. A new dimension of health care: systemic review of the uses, benefits, and limitations of social media for health care professionals. J Med Internet Res. 2013;15(4):e85. [PMC free article] [PubMed] [Google Scholar]
-https://www.ncbi.nlm.nih.gov/pmc/articles/PMC4103576/
-
-http://socialnetworking.procon.org/
-
+**Reference**
+1. Bivin JB, Mathew P, Thulasi PC, Philip J. Nomophobia-do we really need to worry about? Rev Prog. 2013;1:1–5. [Google Scholar]
+2. Bianchi A, Phillips JG. Psychological predictors of problem mobile phone use. Cyber Psychol Behav. 2005;8:39–51. [PubMed] [Google Scholar]
+3. Mick DG, Fournier S. Paradoxes of technology: Consumer cognizance, emotions, and coping strategies. J Consumer Res. 1998:123–43. [Google Scholar]
 
