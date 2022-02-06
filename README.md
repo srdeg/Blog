@@ -39,4 +39,5 @@ If with that we can divert today's youth mind from constantly focussing on smart
 1. Bivin JB, Mathew P, Thulasi PC, Philip J. Nomophobia-do we really need to worry about? Rev Prog. 2013;1:1–5. [Google Scholar]
 2. Bianchi A, Phillips JG. Psychological predictors of problem mobile phone use. Cyber Psychol Behav. 2005;8:39–51. [PubMed] [Google Scholar]
 3. Mick DG, Fournier S. Paradoxes of technology: Consumer cognizance, emotions, and coping strategies. J Consumer Res. 1998:123–43. [Google Scholar]
+4. https://www.ncbi.nlm.nih.gov/pmc/articles/PMC6510111/
 
